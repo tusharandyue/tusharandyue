@@ -1,5 +1,0 @@
----
-title: "What a Delightful Surprise!"
-date: 1545523200
----
-[Hi bud](https://media.giphy.com/media/kFku8NDzYI9ZU26QXJ/giphy.gif), how long has it been? Like 7 freaking months! Well, I have been a little busy, but mostly I just forgot about writing in you. Basically, Yue and I broke up for a while, but then we got back together. That’s a super short summary of what happened that you are privy to. The reason I am writing this very special entry here is because I am finally done with the website I am making for Yue. She has no idea that I am doing anything remotely close to this. She is currently in Hawaii, while I am with my family finishing up this little project that took FAR TOO LONG for me to finish. Funny thing is that while she has been sending these really amazing, well-crafted (love) letters, I have been responding with “K,” and basically saying “I am no good with words.” Hopefully, this should surprise her. The plan is to write a letter, somehow explaining my love for her, and giving her the gift of this diary, and a key to my apartment. [Wish me luck!](https://media.giphy.com/media/rXliavIYbs60o/giphy.gif)

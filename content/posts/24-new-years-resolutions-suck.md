@@ -1,0 +1,9 @@
+---
+title: "New Year's Resolutions Suck!"
+date: 2019-01-05
+---
+UGH… I am deciding to be healthy and go to gym and wake up at 5AM and have a breakfast and [yada yada yada…](https://media.giphy.com/media/2yyiMaap8tJio1o9mn/giphy.gif) Let’s see how long I can keep this up. I signed up for a gym membership at LA Fitness, took Yue there a few times now, and I think she enjoys it… mostly… She gets bored pretty easily. She sometimes offers me unhealthy food, that I am refusing. I gotta say, I feel pretty great when I have the power to refuse junk food. 
+
+I got into a small car accident, and Yue has been driving me everywhere, and I am so grateful to have a girlfriend like her! She picked me up from my place and then she went to the gym with me. I am truly blessed.
+
+And Yoda… Well, he has been through some tough times. He got [cat cold](https://media.giphy.com/media/3o751ZSp5YXQltPGlG/giphy.gif) (I don't know why I am saying "cat cold"... I should just say "cold"...), got his [toe infected](https://media.giphy.com/media/10FHR5A4cXqVrO/giphy.gif), [became super nice](https://media.giphy.com/media/ZfnuAbefMycfu/giphy.gif), went to the [vet](https://media.giphy.com/media/LbGtuww7ZFhgQ/giphy.gif), [and got better](https://media.giphy.com/media/26gsfdArwyEnXnDGw/giphy.gif). I have to say, he was acting like my ideal cat (super cuddly) when he was sick. I felt guilty calling him a “little shithead” :) With pain meds and antibiotics, he started getting better. So it’s back to calling him a “little shithead”... well, because he starting to go back to this baseline and is now acting like a shithead. [Sad...](https://media.giphy.com/media/3oAt21Fnr4i54uK8vK/giphy.gif)

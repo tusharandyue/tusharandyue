@@ -1,5 +1,0 @@
----
-title: "Little Shithead"
-date: 1524096000
----
-So today I found out that Yoda can sleep in bed with Yue… if he feels like it… Basically this little shithead annoys the crap out of me when we try to take a nap. He runs around and makes a lot of noise. Little shithead thinks it’s so much fun to play with the blinds when his parents are trying to sleep. I am sure he enjoys annoying us. We are the most important people in his life: we feed him, clean up after his shit and vomit, take him to the vet, give him medications, play with him, basically we serve his ass all day long. And do you know how he rewards us? BY NOT LETTING ME NAP WHEN I REALLY NEED TO NAP AND I ONLY HAVE LIKE 15 MINUTES TO NAP. But hey, if you are nice to him, and if he feels like it, he will cuddle with Yue and sleep in the bed and let me take a nap quietly. Thanks for nothing [asshole](https://media.giphy.com/media/iviU5Hwac8f04/giphy.gif)!
