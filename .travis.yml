@@ -7,7 +7,7 @@ install:
   - go get github.com/spf13/hugo # This provides the latest version of Hugo to Travis CI
 
 script:
-  - hugo verbose # This commands builds your website on travis
+  - hugo --verbose # This commands builds your website on travis
 
 deploy:
   local_dir: public # Default static site output dir for Hugo
