@@ -1,4 +1,4 @@
-theme = "Hyde"
+theme = "hyde"
 baseURL = "https://tusharandyue.github.io/"
 languageCode = "en-us"
 title = "Tushar & Yue"
