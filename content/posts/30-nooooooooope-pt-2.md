@@ -1,0 +1,5 @@
+---
+title: "NOOOOOOOOOPE! Pt. 2"
+date: 2019-06-01
+---
+[Golden showers.](https://media.giphy.com/media/AhZkRJX9f6dEY/giphy.gif) [Water sports.](https://media.giphy.com/media/TXvbvcWwnkUjS/giphy.gif) [Natural LaCroix.](https://media.giphy.com/media/7ziPDN5wkC6QTAebMP/giphy.gif) [Hint of hint of tea.](https://media.giphy.com/media/3o85xGocUH8RYoDKKs/giphy.gif) [Pee-wee Herman.](https://media.giphy.com/media/HT4IFvKvQwhCE/giphy.gif) [Tinkle Tailor Soldier Spy.](https://media.giphy.com/media/NA4TRhGolQ0q4/giphy.gif) [Beyonce’s hit single.](https://media.giphy.com/media/3o6ozydKTHI7ILj5Xa/giphy.gif) [Bladder sweat.](https://media.giphy.com/media/9PksdqQjp958k/giphy.gif) [Squirtle.](https://media.giphy.com/media/TcG7Tw3uq6tJS/giphy.gif) [Squeeze the lemon.](https://media.giphy.com/media/l2JJA5fbJ5o328Odi/giphy.gif) [H2Ohhhhh!](https://media.giphy.com/media/r0lzPXqMG43io/giphy.gif)

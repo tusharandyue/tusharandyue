@@ -43,7 +43,8 @@ type: {
 	image: {},
 	video: {
 		mobile: { width: '100%' },
-		height: '56.25%w'  // 16:9
+		height: '56.25%w',  // 16:9
+		addVideoThumb: false
 	},
 	// html settings apply to all 5 html sub-types that follow
 	html: {},
